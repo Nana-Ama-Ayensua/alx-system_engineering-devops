@@ -1,1 +1,1 @@
-19. File type: School
+13. We are symbols, and inhabit symbols
