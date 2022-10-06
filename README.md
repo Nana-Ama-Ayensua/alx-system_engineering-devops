@@ -1,1 +1,1 @@
-14. Copy HTML files
+13. We are symbols, and inhabit symbols
